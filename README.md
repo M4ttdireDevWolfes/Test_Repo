@@ -5,4 +5,3 @@
 - system of a down
 - Kontra K 
 - Matt´N
-- 
